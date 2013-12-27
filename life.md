@@ -14,5 +14,5 @@
 - ~2012 Began first technical job
 - 05/2012 Became [UPE](http://upe.acm.org/) chapter president for UVM
 - 05/2013 Graduated from College
-- 06/2013-08/2013 Began Internship and living out on my own. 
+- `06/2013-08/2013` Began Internship and living out on my own. 
 - 09/2013-~ Working at [Bear Code](http://www.bear-code.com)
