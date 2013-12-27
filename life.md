@@ -1,25 +1,35 @@
 @ejehardenberg's life
 
 - 27/03/1991 Born
+- 1995 Met Susan, my first friend
 - 1997 Met first Best Friend Dillon, King of the Monobrow
+- 1998-2004 Fell in love for the first time
 - ~2002 Became inspired by [Xiao Xiao](http://www.newgrounds.com/portal/view/42801) and made [Pivot](http://pivotanimator.net/) movies
 - 2002 Met Shelbyzor Grand Cardinal of Art
-- ~2004 Began programming
+- ~2004-~ Began programming
 - ~2006 Had a high school [Rock Band](https://myspace.com/somersworthfallenfantasy), we were dreadful (listen at your own risk)
-- 2007 Learned Spanish (And promptly forgot it all) 
+- 2007-2008 Learned Spanish (And promptly forgot it all) 
+- ~2008 Met Michael Mckenney, Gandalf Tobacco Pipe smoking friend of philosophy
+- ~2005-2009 Wrote Poetry and drew a lot
 - 06/2009 Graduated High School
 - 09/2009 Met [Sean Perkins](http://scperkins.github.io), the lord of the Dance
 - 2009-2012 Worked at a Movie Theatre
+- 2009 Took a semester of Russian, only remembered one phrase "I need Vodka"
 - 2009-2010 Taught self piano and music theory to compose music for simple python games
+- ~2009 Met Kaytie Randall, soon to become best pal
 - ~2010 Started going to the [CS Crew](http://www.uvm.edu/~cscrew/)
-- 2011-2013 Began a leading member of the [CS Crew](http://www.uvm.edu/~cscrew/)
+- ~2010-2011 Began a love affair with Science and productivity
+- 2011-2013 Becamw a leading member of the [CS Crew](http://www.uvm.edu/~cscrew/)
 - 2012 Paper co-authored and published in [GECCO](http://www.sigevo.org/gecco-2012/papers-accepted.html)
-- ~2012 Began first technical job
-- 05/2012 Became [UPE](http://upe.acm.org/) chapter president for UVM
+- ~2012-10/2012 Began first technical job
+- 12/2012-08/2013 Went through life altering decisions to be as honest as possible
+- 05/2012-05/2013 Became [UPE](http://upe.acm.org/) chapter president for UVM
 - 2012-2013 Took some German Classes (forgot most of it)
 - 09/2012-04/2013 Started at VHFA as a IT Intern and Web Developer
 - 01/2013-05/2013 Started at Brandthropology as a web developer intern
 - 05/2013 Graduated from College
 - 06/2013-08/2013 Began Internship and living out on my own. 
-- 06/2013-08/2013 Met Queen of the Puns, Emily
+- 072013 First time using a Slow Cooker. Instantly fell in love with making Pulled Pork
+- 06/2013-08/2013 Met Queen of the Puns, Emily Hill
 - 09/2013-~ Working at [Bear Code](http://www.bear-code.com)
+- 08/2013-~ Began Writing poetry again and composing
