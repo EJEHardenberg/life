@@ -19,7 +19,7 @@
 - ~2009 Met Kaytie Randall, soon to become best pal
 - ~2010 Started going to the [CS Crew](http://www.uvm.edu/~cscrew/)
 - ~2010-2011 Began a love affair with Science and productivity
-- 2011-2013 Becamw a leading member of the [CS Crew](http://www.uvm.edu/~cscrew/)
+- 2011-2013 Became a leading member of the [CS Crew](http://www.uvm.edu/~cscrew/)
 - 2012 Paper co-authored and published in [GECCO](http://www.sigevo.org/gecco-2012/papers-accepted.html)
 - ~2012-10/2012 Began first technical job
 - 12/2012-08/2013 Went through life altering decisions to be as honest as possible
@@ -29,7 +29,7 @@
 - 01/2013-05/2013 Started at Brandthropology as a web developer intern
 - 05/2013 Graduated from College
 - 06/2013-08/2013 Began Internship and living out on my own. 
-- 072013 First time using a Slow Cooker. Instantly fell in love with making Pulled Pork
 - 06/2013-08/2013 Met Queen of the Puns, Emily Hill
+- 07/2013 First time using a Slow Cooker. Instantly fell in love with making Pulled Pork
 - 09/2013-~ Working at [Bear Code](http://www.bear-code.com)
 - 08/2013-~ Began Writing poetry again and composing
