@@ -34,3 +34,5 @@
 - 07/2013 First time using a Slow Cooker. Instantly fell in love with making Pulled Pork
 - 09/2013-~ Working at [Bear Code](http://www.bear-code.com)
 - 08/2013-~ Began Writing poetry again and composing
+- 11/2013 Featured in Harp Weekly for WordPress Script
+- 02/2014 Featured in Harp Weekly again for poetry and writing website
