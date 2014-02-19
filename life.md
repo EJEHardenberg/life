@@ -9,6 +9,7 @@
 - ~2004-~ Began programming
 - ~2006 Had a high school [Rock Band](https://myspace.com/somersworthfallenfantasy), we were dreadful (listen at your own risk)
 - 2007-2008 Learned Spanish (And promptly forgot it all) 
+- ~2007 Tried to learn Japanese
 - ~2008 Met Michael Mckenney, Gandalf Tobacco Pipe smoking friend of philosophy
 - ~2005-2009 Wrote Poetry and drew a lot
 - 06/2009 Graduated High School
