@@ -36,3 +36,6 @@
 - 08/2013-~ Began Writing poetry again and composing
 - 11/2013 Featured in Harp Weekly for WordPress Script
 - 02/2014 Featured in Harp Weekly again for poetry and writing website
+- ~03/2014 Created xenonapps website with [Seans](http://scperkins.github.io) help
+- ~04/2014 Saw Les Miserables for the first time (in play form!) 
+- 04/16/2014 Started dating the Queen of Puns
